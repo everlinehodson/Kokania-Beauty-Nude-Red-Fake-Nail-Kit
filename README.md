@@ -1,0 +1,2 @@
+# Kokania-Beauty-Nude-Red-Fake-Nail-Kit
+PROFESSIONAL QUALITY NAILS – Nude, Cordovana and  Oatmeal.  An effortless everyday look with richly textured Oatmeal and Burgundy hues. Takes 5 minutes to apply. Lasts for up to one week. 15 unique designs to choose from. Mix and Match to create your own cool designs. 28 nails included in a very nice gift box https://kokania.com/product-category/fashion/women/beauty/.
